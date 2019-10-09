@@ -1,1 +1,1 @@
-We need to put ALL the items related with our EE493-494 courses here.
+Lütfen Buraya 493-494 ile ilgili her seyi yükleyiniz.
