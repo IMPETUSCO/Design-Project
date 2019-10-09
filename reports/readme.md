@@ -1,1 +1,1 @@
-This folder includes all reports that we have to submit.
+Lütfen cvlerinizi business statement rapor içerisine pushlayın!
